@@ -1,3 +1,2 @@
 # config
-discord: wire#1337
-ur mom's cute 🙏
+hello I'm wire i'm interested in programming and uh ur moms lowkey cute k byeeeeee
